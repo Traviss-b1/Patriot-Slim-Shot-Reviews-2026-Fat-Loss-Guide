@@ -1,0 +1,1 @@
+# Patriot-Slim-Shot-Reviews-2026-Fat-Loss-Guide
